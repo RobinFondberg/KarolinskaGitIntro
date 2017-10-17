@@ -1,2 +1,3 @@
 ##Pelicans
-Can also be dangerous
+
+Wales are sometimes cute, especially the small ones
