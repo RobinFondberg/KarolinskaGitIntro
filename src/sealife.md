@@ -7,10 +7,7 @@ But they bite.
 
 
 ## Change
-An other changes
+Im now making some random changes
 
-##Killer whales
-
-Killer whales are great animals
 
 
